@@ -15,7 +15,7 @@
   
 ***
 
-# *_GET • [SESSION ID](https://manjiro-sano-app.onrender.com) • FOR Manjiro Sano md_*
+# *_GET • [SESSION IhD](https://manjiro-sano-app.onrender.com) • FOR Manjiro Sano md_*
 
 ***
 
